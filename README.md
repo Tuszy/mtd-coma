@@ -5,6 +5,8 @@ Self-Made Cocktail Machine
 
 [Instagram](https://www.instagram.com/mtd.coma/)
 
+[Miro](https://miro.com/app/board/uXjVL50LFkU=/)
+
 [Website](https://tudemi.wixsite.com/mtd-coma)
 
 ![MTD-CoMa](MTD-CoMa.jpeg)
